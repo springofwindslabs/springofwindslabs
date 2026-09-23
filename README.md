@@ -26,3 +26,9 @@
 ---
 
 *Static announcements only. For inquiries, see the dataset pages above.*
+
+---
+
+### Enterprise Procurement
+For licensing, corporate invoicing, procurement review, or custom commercial agreements:
+✉️ springofwindslabs@gmail.com
